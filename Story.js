@@ -1,0 +1,2 @@
+shipodan
+boruto
